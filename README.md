@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analyst and AI
 - 🌱 I’m currently learning analyst and AI
 - 💞️ I’m looking to training and collaborate with passionate in data or AI
-- 📫 How to reach me : frognard@outlook.com
+- 📫 How to reach me : fabricer@ik.me
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
